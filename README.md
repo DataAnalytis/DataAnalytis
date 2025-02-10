@@ -13,7 +13,7 @@
 
 😄 Pronouns: He/Him/His.
 
-⚡ Fun fact: Up for an early morning hike any day of the year. If you are into running/hiking, you found yourself a great partner on the side.
+⚡ Fun fact: I love hiking, playing soccer, and often daydream about becoming a professional cricketer someday.
 
 
 
