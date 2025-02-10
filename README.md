@@ -5,7 +5,7 @@
 
 ⏪ I have 4 years of work experience in the analytics domain across South East Asia and Middle East.
 
-🥇 I am targeting jobs centered around Business Analytics (Marketing/ Product / Operations /Finance) to drive business value in a scalable manner
+🥇 I am targeting jobs centered around Business Analytics (Marketing/ Product / Operations /Finance) that are value-centric
 
 💬 Ask me about Product Strategy, Business Analytics or Marketing
 
